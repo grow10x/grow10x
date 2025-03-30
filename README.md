@@ -1,1 +1,3 @@
 -The word is a Market, Marketing is essential
+-Marketing is geniuses playground
+-Deals are though in the past not made in the present
